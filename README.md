@@ -1,0 +1,1 @@
+# Telefonica-Wannacry-File-Restore-Full-Version
